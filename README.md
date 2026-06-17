@@ -1,1 +1,1 @@
-# Projet-cybers-curit-M2
+# Projet-cybersécurité-M2
